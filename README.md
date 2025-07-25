@@ -1,5 +1,5 @@
-## Hi there 👋
-I am Nirav Soni
+## Hi there, I am Nirav Soni👋
+
 
 
 
